@@ -12,7 +12,7 @@ archivo muy pesado,hay que tener paciencia
 archivo muy grande, hay que tener paciencia
 
 disfrutar de la herramienta
-ES UNA OBRA DE NIBIRUANUNA.WIXSITE.COM/ANDROID-RAT-SPY
+ES UNA OBRA DE :https://nibiruanuna.wixsite.com/android-rat-spy
 
 ![Screenshot )](https://github.com/AkiBuriBai/ANDROIDRAT-TOOL/assets/124522421/ec24eacb-eaec-428d-a5c6-f56546143a16)
 
