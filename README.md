@@ -10,6 +10,7 @@ archivo muy pesado,hay que tener paciencia
 
 
 archivo muy grande, hay que tener paciencia
+
 disfrutar de la herramienta
 ES UNA OBRA DE NIBIRUANUNA.WIXSITE.COM/ANDROID-RAT-SPY
 
